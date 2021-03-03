@@ -1,2 +1,0 @@
-# sidehustle
-all things sidehustle
